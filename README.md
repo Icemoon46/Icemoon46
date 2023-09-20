@@ -4,4 +4,4 @@
 - 💞️ PLanejo fazer faculdade de Pscologia 
 - ✨Sou Otaku✨
 - ![](https://images.app.goo.gl/KsgbSxFarn1cr)
-- 
+
